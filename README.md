@@ -1,2 +1,0 @@
-# galeksei.github.io
-Test
